@@ -1,1 +1,1 @@
-Bored kid experimenting with coding 
+Experimenting with new stuff 
